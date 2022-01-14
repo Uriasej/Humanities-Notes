@@ -8,3 +8,5 @@
 
 * One of the stained-glass windows at the Chartres Cathedral shows the genealogy of Christ. The window called "*Tree of Jesse*" depicts the
   Virgin Mary as descended from Jesse, the father of King David, Thus fulfilling the prophecy in the book of Isaiah.
+
+* In a gothic church, the flying buttress was traditionally built against an exterior wall to provide support for more windows and brace it against strong winds.
