@@ -10,3 +10,5 @@
   Virgin Mary as descended from Jesse, the father of King David, Thus fulfilling the prophecy in the book of Isaiah.
 
 * In a gothic church, the flying buttress was traditionally built against an exterior wall to provide support for more windows and brace it against strong winds.
+
+* The Figure of Saint Theodore found on the jamb of Chartres' south transept portal stands in a contrapposto position.
