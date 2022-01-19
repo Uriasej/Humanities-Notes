@@ -23,3 +23,9 @@
 1. Grammar
 2. Rhetoric
 3. Dialectic
+
+* Bologna was the first city to found a university, establishing itself as a center for the study of law.
+
+* Latin was mandatory, and students studied Latin in all courses of their first four years of study.
+
+
