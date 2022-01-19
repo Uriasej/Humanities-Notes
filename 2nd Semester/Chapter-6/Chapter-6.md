@@ -28,4 +28,6 @@
 
 * Latin was mandatory, and students studied Latin in all courses of their first four years of study.
 
+* Robert de Sorbon played a significant role in organizing theology students in Paris.
+
 
