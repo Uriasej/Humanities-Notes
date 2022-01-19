@@ -12,3 +12,8 @@
 * In a gothic church, the flying buttress was traditionally built against an exterior wall to provide support for more windows and brace it against strong winds.
 
 * The Figure of Saint Theodore found on the jamb of Chartres' south transept portal stands in a contrapposto position.
+
+* The *Magnus Libri Organi* is a collection of musical works created by many composers which provided music for all the feast days of the Church calendar.
+
+* *Viderunt Omnes* is a four-part polyphonic composition intended to be sung in the middle of the Christmas Mass at Notre-Dame Cathedral in Paris.
+
