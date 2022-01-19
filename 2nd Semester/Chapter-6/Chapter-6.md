@@ -30,4 +30,9 @@
 
 * Robert de Sorbon played a significant role in organizing theology students in Paris.
 
+* Peter Abelard, a logician and author of the treatise *Sic et Non* taught by the dialectical method.
+
+* Trotula is widely recognized as the author of the *On the Diseases of Women*.
+
+* Thomas Aquinas wrote the *Summa Theologiae* and was one of the prominent spokesmen for Scholasticism.
 
