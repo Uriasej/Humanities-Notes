@@ -17,3 +17,9 @@
 
 * *Viderunt Omnes* is a four-part polyphonic composition intended to be sung in the middle of the Christmas Mass at Notre-Dame Cathedral in Paris.
 
+* The minimum number of voices included in a motet is three.
+
+* The *trivium* consisted of:
+1. Grammar
+2. Rhetoric
+3. Dialectic
