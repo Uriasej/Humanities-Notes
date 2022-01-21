@@ -36,3 +36,4 @@
 
 * Thomas Aquinas wrote the *Summa Theologiae* and was one of the prominent spokesmen for Scholasticism.
 
+* The Gothic church at *Sainte-Chapelle* features the highest ratio of glass to stone.
