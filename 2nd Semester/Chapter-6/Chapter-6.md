@@ -20,9 +20,9 @@
 * The minimum number of voices included in a motet is three.
 
 * The *trivium* consisted of:
-1. Grammar
-2. Rhetoric
-3. Dialectic
+	1. Grammar
+	2. Rhetoric
+	3. Dialectic
 
 * Bologna was the first city to found a university, establishing itself as a center for the study of law.
 
@@ -37,3 +37,5 @@
 * Thomas Aquinas wrote the *Summa Theologiae* and was one of the prominent spokesmen for Scholasticism.
 
 * The Gothic church at *Sainte-Chapelle* features the highest ratio of glass to stone.
+
+* 
