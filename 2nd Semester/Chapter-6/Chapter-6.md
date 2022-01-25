@@ -38,4 +38,6 @@
 
 * The Gothic church at *Sainte-Chapelle* features the highest ratio of glass to stone.
 
+# Tue, Jan 25
+
 * 
