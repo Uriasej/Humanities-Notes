@@ -40,4 +40,9 @@
 
 # Tue, Jan 25
 
-* 
+* Ambrogio Lorenzetti is credited with painting the fresco known as the *Allegory of Good Government*.
+
+* By the twelfth century, Florence was the center of textile production in the Western world and played a central role in European trade markets.
+
+* Florentine bankers introduced Europe's first single currency, the gold florin. The gold florin was considered the most important contribution of Florence's bankers and money lenders to world trade.
+
