@@ -32,6 +32,10 @@
 
 * The Agony of Creation.
 
-* 18th Feb 1664
+* 18th Feb 1664 he died (1564 maybe)
+
+* Pope Julius the Second was known as the Warrior Pop
+
+* The Anti-Christ he was called by the king of France
 
 * 
