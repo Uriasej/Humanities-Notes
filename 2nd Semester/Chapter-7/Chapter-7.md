@@ -9,3 +9,8 @@
 * Filippo Brunelleschi produced the winning design for the dome of Florence Cathedral.
 
 * When composing the *Nuper rosarum flores*, a motet reflecting "ideal proportions", Guillaume Dufay had the Temple of Solomon in Jerusalem in mind.
+
+* Brunelleschi's investigation of optics in Arab science also contributed to his understanding, particularly Alhazen's Perspectiva, which integrated the classical works of:
+  1. Euclid
+  2. Ptolemy
+  3. Galen
