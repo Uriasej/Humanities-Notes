@@ -14,3 +14,8 @@
   1. Euclid
   2. Ptolemy
   3. Galen
+
+* In Masaccio's The Tribute Money, the Apostle Peter appears three times:
+  1. Christ tells St. Peter to Catch a fish
+  2. St. Peter catching a fish in the Sea of Galilee
+  3. St. Peter paying the tax collector
