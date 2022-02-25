@@ -7,3 +7,5 @@
 * The Sacrifice of Isaac, a story from the Hebrew Bible was the assigned topic for competition to create a new set of doors for the north entrance to the Baptistery at Florence's Buomo.
 
 * Filippo Brunelleschi produced the winning design for the dome of Florence Cathedral.
+
+* When composing the *Nuper rosarum flores*, a motet reflecting "ideal proportions", Guillaume Dufay had the Temple of Solomon in Jerusalem in mind.
