@@ -22,4 +22,4 @@
 
 ## Tuesday, March 1, 2022
 
-* 
+* The Medici family supported the rebuilding of the old monastery of San Marco for the Dominican Order, the sections added were a library, cloister room, bell tower, and alter piece.
