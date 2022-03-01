@@ -29,3 +29,7 @@
 * Lorenzo, grandson of Cosimo Medici was known as *il Magnifico* -- "Magnificent".
 
 * Humanists in Lorenzo's court would have recognized Venus, in Botticelli's *Primavera* as an allegorical figure representing the highest moral qualities.
+
+* Heinrich Isaac, humanist composer of Lorenzo Medici, taught music to Lorenzo's sons, served as organist and choirmaster at Florence Cathedral, and, before he knew it, found himself collaborating with Lorenzo writing songs for popular festivals.
+
+* Pico della Mirandola is the author of *Oration on the Dignity of Man*, which is considered one of the greatest manifestos of humanism.
