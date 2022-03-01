@@ -25,3 +25,5 @@
 * The Medici family supported the rebuilding of the old monastery of San Marco for the Dominican Order, the sections added were a library, cloister room, bell tower, and alter piece.
 
 * Marsilio Ficino is credited for having coined the term "Platonic love".
+
+* Lorenzo, grandson of Cosimo Medici was known as *il Magnifico* -- "Magnificent".
