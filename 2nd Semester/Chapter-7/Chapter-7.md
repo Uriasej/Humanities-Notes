@@ -27,3 +27,5 @@
 * Marsilio Ficino is credited for having coined the term "Platonic love".
 
 * Lorenzo, grandson of Cosimo Medici was known as *il Magnifico* -- "Magnificent".
+
+* Humanists in Lorenzo's court would have recognized Venus, in Botticelli's *Primavera* as an allegorical figure representing the highest moral qualities.
