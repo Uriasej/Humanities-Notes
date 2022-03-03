@@ -20,8 +20,6 @@
   2. St. Peter catching a fish in the Sea of Galilee
   3. St. Peter paying the tax collector
 
-## Tuesday, March 1, 2022
-
 * The Medici family supported the rebuilding of the old monastery of San Marco for the Dominican Order, the sections added were a library, cloister room, bell tower, and alter piece.
 
 * Marsilio Ficino is credited for having coined the term "Platonic love".
@@ -33,3 +31,7 @@
 * Heinrich Isaac, humanist composer of Lorenzo Medici, taught music to Lorenzo's sons, served as organist and choirmaster at Florence Cathedral, and, before he knew it, found himself collaborating with Lorenzo writing songs for popular festivals.
 
 * Pico della Mirandola is the author of *Oration on the Dignity of Man*, which is considered one of the greatest manifestos of humanism.
+
+## Thursday, March 3, 2022
+
+* 
