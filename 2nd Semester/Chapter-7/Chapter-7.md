@@ -34,4 +34,4 @@
 
 ## Thursday, March 3, 2022
 
-* 
+* Federigo da Montefeltro financed his lifesyle as a mercenary soldier who was a valuable and highly paid ally to whoever could afford both him and his army.
