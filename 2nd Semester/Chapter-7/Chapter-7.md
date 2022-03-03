@@ -35,3 +35,5 @@
 ## Thursday, March 3, 2022
 
 * Federigo da Montefeltro financed his lifesyle as a mercenary soldier who was a valuable and highly paid ally to whoever could afford both him and his army.
+
+* The *Book of the Courtier* by Baldassare Castiglione recounts conversations and debates among humanists in the Montefeltro court.
