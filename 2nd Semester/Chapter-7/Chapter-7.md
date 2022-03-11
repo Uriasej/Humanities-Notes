@@ -38,4 +38,4 @@
 
 ## Friday, March 11, 2022
 
-* 
+* Leonardo de Vinci's The Last Supper is located on the north wall of the refectory of the Dominican monastery of Santa Maria delle Grazie.
