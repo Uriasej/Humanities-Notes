@@ -32,8 +32,10 @@
 
 * Pico della Mirandola is the author of *Oration on the Dignity of Man*, which is considered one of the greatest manifestos of humanism.
 
-## Thursday, March 3, 2022
-
 * Federigo da Montefeltro financed his lifesyle as a mercenary soldier who was a valuable and highly paid ally to whoever could afford both him and his army.
 
 * The *Book of the Courtier* by Baldassare Castiglione recounts conversations and debates among humanists in the Montefeltro court.
+
+## Friday, March 11, 2022
+
+* 
