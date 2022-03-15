@@ -56,3 +56,5 @@
   3. The mathematical orderlies of its parts.
 
 * To finance the construction of the new Saint Peter's Basilica, Pope Julius II sold indulgences.
+
+* Martin Luther launched the Protestant Reformation in Germany in protest against the sale of indulgences.
