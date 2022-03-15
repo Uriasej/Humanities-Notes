@@ -54,3 +54,5 @@
   1. It's classical reference
   2. It's incorporation of original classical Roman columns into its architectural scheme
   3. The mathematical orderlies of its parts.
+
+* To finance the construction of the new Saint Peter's Basilica, Pope Julius II sold indulgences.
