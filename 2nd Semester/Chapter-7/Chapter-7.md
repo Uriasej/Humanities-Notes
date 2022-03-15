@@ -45,3 +45,7 @@
 * After being elected pope, Julius II commissioned architect Donato Barmante to renovate the Vatican Palace and to serve as chief architect to replace Saint Peter's Basilica with a new church.
 
 * Even though located in Rome, San Pietro in Montorio is associated with the nation of Spain.
+
+* The Tempietto was designed by Baramante.
+
+* The Tempietto was built on the site of Saint Peter's martyrdom.
