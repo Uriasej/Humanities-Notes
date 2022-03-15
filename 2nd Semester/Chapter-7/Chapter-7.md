@@ -41,3 +41,7 @@
 ## Tuesday, March 15, 2022
 
 * Pope Martin V is credited with bringing the papacy back to Rome for good, it became some thing of a papal duty to restore the city to its former greatness.
+
+* After being elected pope, Julius II commissioned architect Donato Barmante to renovate the Vatican Palace and to serve as chief architect to replace Saint Peter's Basilica with a new church.
+
+* Even though located in Rome, San Pietro in Montorio is associated with the nation of Spain.
