@@ -49,3 +49,8 @@
 * The Tempietto was designed by Baramante.
 
 * The Tempietto was built on the site of Saint Peter's martyrdom.
+
+* The characteristics that contributed to the making of the Tempietto are:
+  1. It's classical reference
+  2. It's incorporation of original classical Roman columns into its architectural scheme
+  3. The mathematical orderlies of its parts.
