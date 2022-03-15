@@ -36,6 +36,8 @@
 
 * The *Book of the Courtier* by Baldassare Castiglione recounts conversations and debates among humanists in the Montefeltro court.
 
-## Friday, March 11, 2022
-
 * Leonardo de Vinci's The Last Supper is located on the north wall of the refectory of the Dominican monastery of Santa Maria delle Grazie.
+
+## Tuesday, March 15, 2022
+
+* 
