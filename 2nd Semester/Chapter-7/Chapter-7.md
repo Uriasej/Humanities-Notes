@@ -59,4 +59,6 @@
 
 ## Thursday, March 17, 2022
 
-* 
+* In the city of Florence, Girolamo Savonarola organize troops of children to collect the city's "vanities" which were burned in giant bonfires.
+
+*
