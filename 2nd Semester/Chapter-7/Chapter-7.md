@@ -38,8 +38,6 @@
 
 * Leonardo de Vinci's The Last Supper is located on the north wall of the refectory of the Dominican monastery of Santa Maria delle Grazie.
 
-## Tuesday, March 15, 2022
-
 * Pope Martin V is credited with bringing the papacy back to Rome for good, it became some thing of a papal duty to restore the city to its former greatness.
 
 * After being elected pope, Julius II commissioned architect Donato Barmante to renovate the Vatican Palace and to serve as chief architect to replace Saint Peter's Basilica with a new church.
@@ -58,3 +56,7 @@
 * To finance the construction of the new Saint Peter's Basilica, Pope Julius II sold indulgences.
 
 * Martin Luther launched the Protestant Reformation in Germany in protest against the sale of indulgences.
+
+## Thu, Mar 17, 2022
+
+* 
