@@ -57,6 +57,6 @@
 
 * Martin Luther launched the Protestant Reformation in Germany in protest against the sale of indulgences.
 
-## Thu, Mar 17, 2022
+## Thursday, March 17, 2022
 
 * 
