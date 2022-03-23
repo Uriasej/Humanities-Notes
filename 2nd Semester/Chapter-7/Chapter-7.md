@@ -57,10 +57,12 @@
 
 * Martin Luther launched the Protestant Reformation in Germany in protest against the sale of indulgences.
 
-## Thursday, March 17, 2022
-
 * In the city of Florence, Girolamo Savonarola organize troops of children to collect the city's "vanities" which were burned in giant bonfires.
 
 * The city of Florence commissioned Michelangelo to create a freestanding statue of David using a huge cracked block of marble.
 
 * Throughout the ceiling of the Sistine Shapel, Michelangelo includes the della Rovene heraldic symbols of oak and acorn to symbolize the patronage of Pope Julius II.
+
+## Wednesday, March 23, 2022
+
+* 
