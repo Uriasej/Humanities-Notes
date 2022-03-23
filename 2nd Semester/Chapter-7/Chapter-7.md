@@ -65,4 +65,6 @@
 
 ## Wednesday, March 23, 2022
 
+* Pope Julius II hired Raphael to paint his private rooms in the Vatican Palace.
+
 * 
