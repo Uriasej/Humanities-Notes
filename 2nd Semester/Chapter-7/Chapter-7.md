@@ -67,4 +67,4 @@
 
 * Pope Julius II hired Raphael to paint his private rooms in the Vatican Palace.
 
-* 
+* Aristotle and Plato are the central figures in Raphael's *School of Athens*.
