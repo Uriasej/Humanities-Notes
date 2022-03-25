@@ -63,8 +63,12 @@
 
 * Throughout the ceiling of the Sistine Shapel, Michelangelo includes the della Rovene heraldic symbols of oak and acorn to symbolize the patronage of Pope Julius II.
 
-## Wednesday, March 23, 2022
-
 * Pope Julius II hired Raphael to paint his private rooms in the Vatican Palace.
 
 * Aristotle and Plato are the central figures in Raphael's *School of Athens*.
+
+## Thursday, March 25, 2022
+
+* Pope Sixtus IV is credited with establishing the Sistine Shapel Choir
+
+* Josquin des Prez composed the *Pange lingua* mass.
