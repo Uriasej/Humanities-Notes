@@ -76,3 +76,8 @@
 * The author of *The Prince* was Niccolo Machiavelli.
 
 * In the book, *The Prince*, Machiavelli writes that the prince's chief preoccupation and primary duty was to wage war.
+
+* Machiavelli argues that the prince, once engaged in war, has three alternatives for controlling a state once he has conquered it:
+  1. He can devastate it
+  2. live in it
+  3. Allow it to keep its own laws
