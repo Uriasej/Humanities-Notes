@@ -81,3 +81,7 @@
   1. He can devastate it
   2. live in it
   3. Allow it to keep its own laws
+
+* The lion is the symbol of the Venetian republic.
+
+* The Lombards forced the local populations of the Po River delta to flee to the swampy lagoon islands that would later become the city of Venice.
