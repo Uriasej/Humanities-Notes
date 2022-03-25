@@ -95,3 +95,5 @@
 * The painting, *Pastoral Concert*, includes a fully clothed nobleman playing a lute while a nude woman plays a flute.
 
 * The painting, *Venus of Urbino*, includes a dog sleeping on white sheets.
+
+* Madalena Casulana was the first professional woman composer to see her own compositions in print.
