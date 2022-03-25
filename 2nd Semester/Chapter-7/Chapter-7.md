@@ -72,3 +72,7 @@
 * Pope Sixtus IV is credited with establishing the Sistine Shapel Choir
 
 * Josquin des Prez composed the *Pange lingua* mass.
+
+* The author of *The Prince* was Niccolo Machiavelli.
+
+* In the book, *The Prince*, Machiavelli writes that the prince's chief preoccupation and primary duty was to wage war.
