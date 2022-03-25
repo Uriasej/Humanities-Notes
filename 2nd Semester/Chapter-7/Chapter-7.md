@@ -85,3 +85,5 @@
 * The lion is the symbol of the Venetian republic.
 
 * The Lombards forced the local populations of the Po River delta to flee to the swampy lagoon islands that would later become the city of Venice.
+
+* Venice considered itself blessed by Saint Mark, whose relics resided in the cathedral of Saint Mark's.
