@@ -89,3 +89,9 @@
 * Venice considered itself blessed by Saint Mark, whose relics resided in the cathedral of Saint Mark's.
 
 * The Contarini family is associated with Venice's Ca'd'Oro.
+
+* According to Vasari, Giorgione did not make preliminary drawings for his paintings.
+
+* The painting, *Pastoral Concert*, includes a fully clothed nobleman playing a lute while a nude woman plays a flute.
+
+* The painting, *Venus of Urbino*, includes a dog sleeping on white sheets.
