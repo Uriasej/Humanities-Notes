@@ -97,3 +97,11 @@
 * The painting, *Venus of Urbino*, includes a dog sleeping on white sheets.
 
 * Madalena Casulana was the first professional woman composer to see her own compositions in print.
+
+* Ferrara housed the "*Ensemble of Ladies*," which attracted many of the most prominent madrigal composers of the day.
+
+* Adrian Willaert served as choirmaster of St. Mark's in Venice.
+
+* Adrian Willaert set to music in the madrigals of New Music the sonnets of Petrarch.
+
+* The toccata is also known as a "virtuoso prelude," designed to feature both the range of the organ and the dexterity of the organist.
