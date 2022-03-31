@@ -67,8 +67,6 @@
 
 * Aristotle and Plato are the central figures in Raphael's *School of Athens*.
 
-## Thursday, March 25, 2022
-
 * Pope Sixtus IV is credited with establishing the Sistine Shapel Choir
 
 * Josquin des Prez composed the *Pange lingua* mass.
@@ -105,3 +103,9 @@
 * Adrian Willaert set to music in the madrigals of New Music the sonnets of Petrarch.
 
 * The toccata is also known as a "virtuoso prelude," designed to feature both the range of the organ and the dexterity of the organist.
+
+## Tuesday, March 29, 2022
+
+* Palladio was a careful student of Vitruvius, sharing an interest with Leonardo.
+
+* The Pantheon in Rome served as the model for the central dome of Palladio's La Rotunda.
