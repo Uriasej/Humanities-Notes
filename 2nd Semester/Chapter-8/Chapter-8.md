@@ -6,4 +6,4 @@
 
 ## Monday, April 11, 2022
 
-* 
+* Many scholars consider Robert Campin the Master of Flémalle and, therefore, the creator of *Mérode Altarpiece.*
