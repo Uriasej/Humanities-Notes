@@ -13,3 +13,5 @@
 * The altarpiece's patrons are depicted in the left panel of the *Mérode Altarpiece.*
 
 * The Annunciation is depicted in the central panel of the *Mérode Altarpiece.*
+
+* The reflection Jan van Eyck, the artist, can be seen in the mirror at the back of the room depicted in the double portrait of Giovanni Arnolfini and Giovanna Cenami.
