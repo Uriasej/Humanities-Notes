@@ -18,4 +18,6 @@
 
 * Hieronymus Bosch created the *Garden of Earthly Delights.*
 
-* 
+* *The Isenheim Altarpiece was created by Matthias Grünwald.*
+
+* The Insenheim Altarpiece was commissioned for an abbey's hospital.
