@@ -16,4 +16,6 @@
 
 ## Wednesday, April 13, 2022
 
+* Hieronymus Bosch created the *Garden of Earthly Delights.*
+
 * 
