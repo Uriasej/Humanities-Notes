@@ -60,3 +60,11 @@
 * Hamlet is considered a "revenge play."
 
 * Hans Holbein the Younger painted a portrait of England's King Henry VIII dressed in the clothes he wore when he married Anne of Cleves.
+
+* The Jesuits advocated a return to strict and uncompromising obedience to the authority of the Church and its ecclesiastical heiarchy.
+
+* The council of Trent concluded that the arts should be directed toward three specific areas:
+  1. Clarity
+  2. Realism
+  3. Emotion
+
