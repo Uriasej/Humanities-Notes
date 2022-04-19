@@ -29,3 +29,7 @@
 * Desiderius Erasmus was one of Luther's teachers and wrote the Praise of Folly.
 
 * In direct conflict with the established Church of Rome, Martin Luther supported the salvation by faith rather than by works.
+
+* Ulrich Zwingli was chosen as people's priest of the Zurich's Great Minister Church and led the Protestants against the Catholics in Switzerland.
+
+* John Calvin proposed the concept of the Elect and the Damned in Insitutes of the Christain Religion.
