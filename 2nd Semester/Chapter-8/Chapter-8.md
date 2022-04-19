@@ -24,4 +24,8 @@
 
 ## Tuesday, April 19, 2022
 
-* 
+* Desiderius Erasmus is the author of In Praise of Folly.
+
+* Desiderius Erasmus was one of Luther's teachers and wrote the Praise of Folly.
+
+* In direct conflict with the established Church of Rome, Martin Luther supported the salvation by faith rather than by works.
