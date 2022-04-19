@@ -37,3 +37,14 @@
 * According to the author, the printing press probably contributed the most to the spread of Luther's ideas.
 
 * William Tyndale translated the Bible into English.
+
+* A Mighty Fortress Is Our God is among the hymns that Martin Luther Composed.
+
+* Thomas More is the author of Utopia.
+
+* The specific virtues among those most esteemed by all in Utopia are:
+  1. Equality
+  2. Kindness
+  3. Charity
+
+* Thomas More became Lord Chancellor to Henry VIII in 1529.
