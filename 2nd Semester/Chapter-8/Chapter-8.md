@@ -48,3 +48,11 @@
   3. Charity
 
 * Thomas More became Lord Chancellor to Henry VIII in 1529.
+
+* Michel de Montaigne invented a new style of writing known as the "personal essay".
+
+* William Shakespeare is considered the greatest playwright of the Elizabethan era.
+
+* The standard price of admission for all London theaters during the time of Richard Burbage was on penny.
+
+* The Globe was most closely associated with Lord Chamberlain's players and with William Shakespeare.
