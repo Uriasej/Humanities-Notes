@@ -56,3 +56,7 @@
 * The standard price of admission for all London theaters during the time of Richard Burbage was on penny.
 
 * The Globe was most closely associated with Lord Chamberlain's players and with William Shakespeare.
+
+* Hamlet is considered a "revenge play."
+
+* Hans Holbein the Younger painted a portrait of England's King Henry VIII dressed in the clothes he wore when he married Anne of Cleves.
