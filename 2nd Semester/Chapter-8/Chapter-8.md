@@ -14,8 +14,6 @@
 
 * The reflection Jan van Eyck, the artist, can be seen in the mirror at the back of the room depicted in the double portrait of Giovanni Arnolfini and Giovanna Cenami.
 
-## Wednesday, April 13, 2022
-
 * Hieronymus Bosch created the *Garden of Earthly Delights.*
 
 * *The Isenheim Altarpiece was created by Matthias Grünwald.*
@@ -24,4 +22,6 @@
 
 * Albrecht Dürer created *The Large Turf*, a watercolor depicting the minutest details of nature.
 
-*
+## Tuesday, April 19, 2022
+
+* 
