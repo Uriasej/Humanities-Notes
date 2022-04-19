@@ -35,3 +35,5 @@
 * John Calvin proposed the concept of the Elect and the Damned in Insitutes of the Christain Religion.
 
 * According to the author, the printing press probably contributed the most to the spread of Luther's ideas.
+
+* William Tyndale translated the Bible into English.
