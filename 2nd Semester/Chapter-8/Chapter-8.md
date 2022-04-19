@@ -33,3 +33,5 @@
 * Ulrich Zwingli was chosen as people's priest of the Zurich's Great Minister Church and led the Protestants against the Catholics in Switzerland.
 
 * John Calvin proposed the concept of the Elect and the Damned in Insitutes of the Christain Religion.
+
+* According to the author, the printing press probably contributed the most to the spread of Luther's ideas.
