@@ -1,4 +1,4 @@
-## Renaissance and Reformation in the North
+# Renaissance and Reformation in the North
 
 * Flanders encompassed modern Holland, Belgium, and Luxembourg
 
