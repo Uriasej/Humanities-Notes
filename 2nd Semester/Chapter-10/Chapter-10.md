@@ -5,3 +5,5 @@
 * The term *braghettoni* was assigned to those who painted draperies over the "offensive" areas of the nude figures in Michelangelo's *Last Judgement.*
 
 * Correggio created *Jupiter and Io* as part of the set of paintings commissioned by Frederico Gonzaga of Mantua.
+
+* Jupiter appears to Io in the painting commissioned by Federico Gonzaga of Mantua as a cloud.
