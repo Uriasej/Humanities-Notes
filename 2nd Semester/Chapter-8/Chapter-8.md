@@ -22,8 +22,6 @@
 
 * Albrecht Dürer created *The Large Turf*, a watercolor depicting the minutest details of nature.
 
-## Tuesday, April 19, 2022
-
 * Desiderius Erasmus is the author of In Praise of Folly.
 
 * Desiderius Erasmus was one of Luther's teachers and wrote the Praise of Folly.
