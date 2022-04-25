@@ -35,3 +35,7 @@
 * In the seventeenth century, Venice became the center of musical innovation and practice in Europe.
 
 * Giovanni Gabrieli is considered the first composer to specify dynamics by indicating piano for "*soft*" and forte for "*loud*"
+
+* The *View of Haarlem from the Dunes of Overveen* is considered a "landscape" painting.
+
+* Jan Steen was particularly successful with genre scenes, including *The Dancing Couple*.
