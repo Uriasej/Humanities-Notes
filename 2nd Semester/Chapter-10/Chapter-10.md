@@ -20,4 +20,10 @@
 
 ## Monday, April 25, 2022
 
-* 
+* As the author of spiritual Exercises, Ignatius of Loyola called on Jesuits to develop all of their senses.
+
+* Bernini completed the sculptural program for the Cornaro Chapel in the Church of Sants Maria della Vittoria in Rome.
+
+* Michelangelo Merisi (Caravaggio) painted *The Calling of Saint Matthew* for the Contarelli Chapel in the Church of San Luigi dei Francesi in Rome.
+
+* In Caravaggio's The Calling of Saint Matthew, Saint Peter is standing beside Christ.
