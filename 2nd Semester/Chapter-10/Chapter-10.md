@@ -27,3 +27,7 @@
 * Michelangelo Merisi (Caravaggio) painted *The Calling of Saint Matthew* for the Contarelli Chapel in the Church of San Luigi dei Francesi in Rome.
 
 * In Caravaggio's The Calling of Saint Matthew, Saint Peter is standing beside Christ.
+
+* Artemisia Gentileschi painted five sperate versions of the biblical story of Judith and Holofernes and was admitted to the Florentine Academy of Design.
+
+* Artemisia Gentileschi, in addition to Judith, she dramatized the stories of Susannah, Bathsheba, Lucretia, Cleopatra, Esther, Diana, and Potiphar.
