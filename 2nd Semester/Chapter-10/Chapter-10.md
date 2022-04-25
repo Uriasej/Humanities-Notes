@@ -18,3 +18,6 @@
   3. presenting the narrative in a solemn style free form affectation
   4. In delicate juxtaposition with the comic scenes.
 
+## Monday, April 25, 2022
+
+* 
