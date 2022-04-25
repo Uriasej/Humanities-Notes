@@ -39,3 +39,5 @@
 * The *View of Haarlem from the Dunes of Overveen* is considered a "landscape" painting.
 
 * Jan Steen was particularly successful with genre scenes, including *The Dancing Couple*.
+
+* Peter Paul Rubens painted *The Arrival and Reception of Marie de' Medici at Marseilles.*
