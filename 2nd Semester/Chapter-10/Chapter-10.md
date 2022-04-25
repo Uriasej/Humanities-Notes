@@ -31,3 +31,7 @@
 * Artemisia Gentileschi painted five sperate versions of the biblical story of Judith and Holofernes and was admitted to the Florentine Academy of Design.
 
 * Artemisia Gentileschi, in addition to Judith, she dramatized the stories of Susannah, Bathsheba, Lucretia, Cleopatra, Esther, Diana, and Potiphar.
+
+* In the seventeenth century, Venice became the center of musical innovation and practice in Europe.
+
+* Giovanni Gabrieli is considered the first composer to specify dynamics by indicating piano for "*soft*" and forte for "*loud*"
